@@ -1,4 +1,5 @@
-Growing up a UFC fan and then serving in the military around a lot of fighting really allowed me to embrace the sport and it's characters. Everyone is fighting for survival around the world and this is just a small way I can help them do just that.
+Growing up a UFC fan and then serving in the military around a lot of fighting really allowed me to embrace the sport and it's characters. 
+Everyone is fighting for survival around the world and this is just a small way I can help them do just that.
 
 https://suga-sean-platform-3pp6.vercel.app/
 

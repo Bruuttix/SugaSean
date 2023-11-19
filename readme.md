@@ -1,5 +1,4 @@
-Growing up a UFC fan and then serving in the military around a lot of fighting really allowed me to embrace the sport and it's characters. 
-Everyone is fighting for survival around the world and this is just a small way I can help them do just that.
+Having been a UFC enthusiast since my youth, and subsequently experiencing the combative spirit during my military service, I've developed a deep appreciation for the sport and its unique personalities. It's a powerful reminder that, globally, individuals are battling for their existence, and engaging with this sport is one way I can contribute to their fight for survival.
 
 https://sugashow.info
 
